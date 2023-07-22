@@ -1,1 +1,1 @@
-just run it,the picture is not supported.
+just run it,the picture is not provided.
